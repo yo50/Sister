@@ -1,3 +1,5 @@
+![Sister Album Artwork](https://is1-ssl.mzstatic.com/image/thumb/Music114/v4/44/e1/35/44e135b9-022a-135e-3ff1-74d63846dbb4/source/200x200bb.jpg)
+
 # Sister
 
 #### Tracklist
