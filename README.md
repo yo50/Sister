@@ -1,4 +1,4 @@
-![Sister Album Artwork](https://is1-ssl.mzstatic.com/image/thumb/Music114/v4/44/e1/35/44e135b9-022a-135e-3ff1-74d63846dbb4/source/200x200bb.jpg)
+![Sister Album Artwork](https://distrokid.imgix.net/http%3A//distrokid.com/hyperfollow/art/yo50/sister-3?w=800&s=b3a94499adb7519006a96286cece3e0e)
 
 # Sister
 
